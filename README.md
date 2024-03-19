@@ -1,4 +1,4 @@
-### Hi there 👋
+### Welcome to jmyoon7442's Giyhub👋 (since March. 19, Tue)
 
 🤎 Let me introduce my self 🤎
 
