@@ -1,4 +1,4 @@
-### Welcome to jmyoon7442's Giyhub👋 (since March. 19, Tue)
+### Welcome to jmyoon7442's Github👋 (since March. 19, Tue)
 
 🤎 Let me introduce my self 🤎
 
