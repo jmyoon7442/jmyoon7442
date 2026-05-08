@@ -2,6 +2,6 @@
 
 🤎 Let me introduce my self 🤎
 
-- 🔭 I’m a student of Gyeongsang National University.
+- 🔭 I’m a 4th student of Gyeongsang National University.
 - 🌱 I’m currently learning Digital Literacy.
 - 📖 I'm majoring in English Education.
